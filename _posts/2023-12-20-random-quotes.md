@@ -12,9 +12,9 @@ tags: [quotes]
 3. Thinking of yourself is not always necessary; but thinking for yourself is.
 4. Justice is a gift from God, rather than a lawful right. It is not found in institutions, systems or processes. God sends us this gift through just individuals. Hence we get the gift from such.
 5. An excuse can never be synonymous to a reason.
-6. I find my peace in the Lord. I see your too. You just have to come for it.
+6. I find my peace in the Lord. I see yours too. You just have to come for it.
 7. Value education. You met some of your greatest friends through its influence.
-8. If you can\'t laugh together, there is little yoou can do together.
+8. If you can\'t laugh together, there is little you can do together.
 9. No amount of money can substitute a reliable person.
 10. The best is not always necessary.
 11. Love your children so much. Just don\'t love them too much.
@@ -30,13 +30,13 @@ tags: [quotes]
 21.	The motive is not as implicating as the act itself. [16<sup>th</sup> July Monday 2012 6:30 pm]
 22.	Sometimes I feel like I\'m stuck in a vacuum full of nothingness. [Friday 30<sup>th</sup> 5:46 pm 2013]
 23.	If you still be alive it means there is something you are yet to accomplish. [Thursday 10:05 am 5<sup>th</sup> June 2014]
-24.	It is not that I a great speaker, but if you think that I am, then you are a great listener.
+24.	It is not that I\'m a great speaker, but if you think that I am, then you are a great listener.
 25.	The only way to even start dreaming of a better future is to change the present reality of our children. All of them. [Monday August 4<sup>th</sup> 2014]
 26.	Another way to measure subtle oppression in a country is when the executive has confidence in the judicial system.
 27.	Peace does not precede justice, not even in the dictionary. [Tuesday 26<sup>th</sup> August 2014 12:18 pm]
 28.	Hard work is not the key to success. Otherwise many poor people would have different realities. [2<sup>nd</sup> October 2014 18:03, Mweiga]
 29.	A man cannot destroy his ambitions. He can only suppress them, even if but for a while. [8<sup>th</sup> November, Mweiga]
-30.	Labour as they may in their world of elate thoughts, succumbing to false instances of nearly grasping, philosophers will never understand the Truth; because God is The Truth. [22<sup>nd</sup> November 2014 7:13 pm, Mweiga]
+30.	Labour as they may in their world of elated thoughts, succumbing to false instances of nearly grasping, philosophers will never understand the Truth; because God is The Truth. [22<sup>nd</sup> November 2014 7:13 pm, Mweiga]
 31.	Oh how divine the smile that shows in the course of difficulty. [ 23<sup>rd</sup> November 2014 9:03 am, Mweiga]
 32.	If you ask the wrong question, you may get a correct answer; but to a wrong question. [Sunday 14<sup>th</sup> December 2014 9:31 am]
 33.	Vipers of a fang brood together. [Sunday 28<sup>th</sup> December 2014 11:23 am]
@@ -44,8 +44,8 @@ tags: [quotes]
 35.	A man should search his heart and consider all his actions and effort, then ask himself “to what end?"[27<sup>th</sup> January 2015 3:38 pm]
 36.	Contrary to the numerous historical claims by men of science, there are no discoveries in this world. And there never will be. We only have numerous instances of divine revelations. [14<sup>th</sup> February 2014 2:51 pm, Maseno]
 37.	Of relationships: Everyone is given only one half of the map of their life. We must find the person with the other half to find our joint destination, lest we get lost. [1<sup>st</sup> March 2015 8:26 am, Maseno]
-38.	How fortunate the man whom what he wants to be and what fate will him to be are the same. [Thursday 12<sup>th</sup> March 2015 9:16 am, Maseno]
-39.	For some will defy to die with honor. But only the just die in honor. [Thursday 12<sup>th</sup> March 2015 11:12 am, Maseno]
+38.	How fortunate the man whom what he wants to be and what fate wills him to be are the same. [Thursday 12<sup>th</sup> March 2015 9:16 am, Maseno]
+39.	For some will defy fear to die with honor. But only the just die in honor. [Thursday 12<sup>th</sup> March 2015 11:12 am, Maseno]
 40.	Only a woman can save a man from himself. [17<sup>th</sup> March Tuesday 9:07 am, Maseno]
 41.	You can tell yourself a lie, but you cannot lie to yourself. [Sunday 17<sup>th</sup> May 2015 8:26 am, Ligega]
 42.	There is nothing like being over ambitious. You are either ambitious or greedy. And ambition is in itself only but tempered greeed. [23<sup>rd</sup> May 2015 Saturday 4:51 pm, Maseno]
@@ -59,9 +59,9 @@ tags: [quotes]
 50.	Who can understand the deep things of God? [October 2<sup>nd</sup> 7:45 pm, Kajiado]
 51.	Objectivity is the mat on which politics dusts its feet.
 52.	Pain anticipated is half reduced. [December 24<sup>th</sup> 7:36 pm, Kajiado]
-53.	If God did not exist, then atheism would lack a definition. God is the basis on which atheism is defined. Without God, there would be o atheists. [December 8<sup>th</sup> 2015 4:32 pm, Kajiado]
+53.	If God did not exist, then atheism would lack a definition. God is the basis on which atheism is defined. Without God, there would be no atheists. [December 8<sup>th</sup> 2015 4:32 pm, Kajiado]
 54.	Oh fate. That thou would set me free to find my calling. [December 13<sup>th</sup> 1:05 pm 2015, Kajiado]
 55.	Humility is humility before God or it is nothing at all. [January 3<sup>rd</sup> 9:00 am 2016, Kajidao]
-56.	It is self-defeating to ask for both wisdom and happiness in this world. We must choose one. A decision that requires a lot of wisdom. [January 30<sup>th</sup> 4:34 pm 2016, Kajiado]
+56.	It is self-defeating to ask for both wisdom and happiness in this world. We must choose one. A choice that requires a lot of wisdom. [January 30<sup>th</sup> 4:34 pm 2016, Kajiado]
 57.	I have observed that to infants, the world is one big cinnamon cake. Everything is to be eaten. [April 5<sup>th</sup> 2016 11:42 am, Nairobi]
 58.	A man is more accurately defined by his aversions rather than his pursuits. What he forbids himself from indulging, there and then, that is what the man really is. [ March 12<sup>th</sup> 6:28 pm 2016, Nairobi]
