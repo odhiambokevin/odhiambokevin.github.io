@@ -5,7 +5,7 @@ categories: [religion]
 tags: [God,Bible,David,Covenant]
 ---
 
-Genesis explicitly exposes the subtle and scheming nature of the satan. Discerning this trait of the enemy is so important for Christians that it is brought early in the text of the Bible. The subtle nature of the malignant cunning of Satan brings down man from the glory God had made him for. The deception establishes the kingdom of satan on earth that it takes the death and resurrection of Jesus to redeem man, and the earth from the forces of the devil. This is captured in *`John 12:31`*
+Genesis explicitly exposes the subtle and scheming nature of satan. Discerning this trait of the enemy is so important for Christians that it is brought early in the text of the Bible. The subtle nature of the malignant cunning of Satan brings down man from the glory God had made him for. The deception establishes the kingdom of satan on earth that it takes the death and resurrection of Jesus to redeem man, and the earth from the forces of the devil. This is captured in *`John 12:31`*
 
 
 > *<sup>31</sup>"Now is the judgement of this world,<br>
