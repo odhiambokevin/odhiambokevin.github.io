@@ -1,5 +1,5 @@
 ---
-title: 'Is this man God?: Pharisee Viewpoint of Jesus'
+title: 'Is this man God?: Pharisee perspective of Jesus'
 date: 2024-05-20 20:26:00 +0300
 categories: [religion]
 tags: [religion]
