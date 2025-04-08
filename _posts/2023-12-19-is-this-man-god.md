@@ -15,7 +15,7 @@ The bewilderment that plagues the Pharisees, lets call them the offspring of the
 
 > "If you are the Son of God"
 
-Jesus, just lime with the Pharisees, does not do anything to explicitly convince the devil that he is indeed "the Son of God". The last test is a classic move by the deceiver. He cunningly and indirectly asks the same thing but this time tries to get Jesus to worship him. All responses Jesus gives imply the he could have been anyone, even an overzealous believer.
+Jesus, just like with the Pharisees, does not do anything to explicitly convince the devil that he is indeed "the Son of God". The last test is a classic move by the deceiver. He cunningly and indirectly asks the same thing but this time tries to get Jesus to worship him. All responses Jesus gives imply the he could have been anyone, even an overzealous believer.
 
 The reason for this vague display about his identity to the devil and his sons is because had they indeed known that He is Christ, they would have prevented his death, since it is by his death and resurrection, that the accuser is defeated unto eternity. By preventing the death of Jesus, man would have never been saved.
 
