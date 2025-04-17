@@ -1,5 +1,5 @@
 ---
-title: 'The Unjust God: An Arguement fot the Unjust Nature of God'
+title: 'The Unjust God: An Arguement for the Unjust Nature of God'
 date: 2023-12-19 14:00:00 +0300
 categories: [religion]
 tags: [religion]
