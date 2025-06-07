@@ -1,7 +1,7 @@
 ---
 title: 'Mathew 6:33 is a Beautiful ensnare for Searching Souls'
 date: 2024-01-16 13:12:00 +0300
-categories: [religion]
+categories: [bible]
 tags: [God,Bible]
 ---
 

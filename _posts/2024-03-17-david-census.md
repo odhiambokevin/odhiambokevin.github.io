@@ -1,7 +1,7 @@
 ---
 title: 'Beware of the subtle cunning'
 date: 2024-03-17 08:04:00 +0300
-categories: [religion]
+categories: [bible]
 tags: [God,Bible,David,Covenant]
 ---
 

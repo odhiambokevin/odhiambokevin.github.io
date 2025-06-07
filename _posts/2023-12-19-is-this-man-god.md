@@ -1,11 +1,11 @@
 ---
 title: 'Is this man God? Pharisee perspective of Jesus'
 date: 2024-05-20 20:26:00 +0300
-categories: [religion]
+categories: [bible]
 tags: [religion]
 ---
 
-I was reading the Gospel of the disciple whom Jesus loved and could\'t help but notice that there was one burning question that the Pharisees really had about Jesus: Is this man the Messiah? All their probing, mental traps and scriptural gymnastics were purposefully designed to answer this one question. Interesting enough, to my joyous surprise, it seems Jesus deliberately gave them vague answers to purposefully keep them in a state of perpetual suspense. If you go through the exchanges between Jesus and the Pharisees, this ambiguity that Jesus the Christ plants in the hearts of the Pharisees is so plain to see it's amazing how we rarely discern it. But why does Jesus not answer them plainly?
+I was reading the Gospel of the disciple whom Jesus loved and couldn\'t help but notice that there was one burning question that the Pharisees really had about Jesus: Is this man the Messiah? All their probing, mental traps and scriptural gymnastics were purposefully designed to answer this one question. Interesting enough, to my joyous surprise, it seems Jesus deliberately gave them vague answers to purposefully keep them in a state of perpetual suspense. If you go through the exchanges between Jesus and the Pharisees, this ambiguity that Jesus the Christ plants in the hearts of the Pharisees is so plain to see it's amazing how we rarely discern it. But why does Jesus not answer them plainly?
 
 I have a theory. The Pharisees were posed by the devil himself. Jesus explicitly asserts this in John 8:44 when he says:
 
