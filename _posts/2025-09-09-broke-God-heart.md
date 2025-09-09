@@ -1,6 +1,6 @@
 ---
 title: "Oh how we broke God's heart"
-date: 2025-08-05 11:11:00 +0300
+date: 2025-09-09 11:11:00 +0300
 categories: [God]
 tags: [Lord, God]
 ---
