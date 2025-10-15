@@ -66,3 +66,4 @@ tags: [quotes]
 57.	I have observed that to infants, the world is one big cinnamon cake. Everything is to be eaten. [April 5<sup>th</sup> 2016 11:42 am, Nairobi]
 58.	A man is more accurately defined by his aversions rather than his pursuits. What he forbids himself from indulging, there and then, that is what the man really is. [ March 12<sup>th</sup> 6:28 pm 2016, Nairobi]
 59. There is a book you can choose to read. Then there is a book, long after the last page has been turned over, in our sense of things, realize that the book chose us. [ OCtober 14<sup>th</sup> 9:07 am 2025, Nairobi, Mihang'o] ref: The Man who Got Even with God
+60. Children, in their amusing half-asleep state when you wake them up for school, are so philosophical they conjure such deep thoughts on the subtle vanity of capitalism. [ OCtober 15<sup>th</sup> 6:27 am 2025, Nairobi, Mihang'o]
